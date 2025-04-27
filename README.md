@@ -1,10 +1,10 @@
-<img src="https://capsule-render.vercel.app/api?type=waving&color=0:FF0000,100:FF0000&height=180&section=header&text=DEVIL%20TECH%20MD%20WHATSAPP%20BOT&fontSize=38&fontColor=ffffff&fontFamily=Roboto&animation=twinkling" width="100%"/>
+<img src="https://capsule-render.vercel.app/api?type=waving&color=0:FF0000,100:FF0000&height=180&section=header&text=NEXUS%20TECH%20MD%20WHATSAPP%20BOT&fontSize=38&fontColor=ffffff&fontFamily=Roboto&animation=twinkling" width="100%"/>
 
 
 
 <div align="center">
   
-[![WhatsApp Channel](https://img.shields.io/badge/Join-WhatsApp%20Channel-FF00F8?style=big-square&logo=whatsapp)](https://whatsapp.com/channel/0029Vb9u0GQ8qIzmoGPEtq0s)
+[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAPP%20CHANNEL-FF00F8?style=big-square&logo=whatsapp)](https://whatsapp.com/channel/0029Vb5TKuPLCoX8sjZo7t41)
 </div>
 
  <p align="center"><img src="https://profile-counter.glitch.me/{DEVIL-TECH-MD}/count.svg" alt="deviltech567 :: Visitor's Count" old_src="https://profile-counter.glitch.me/{deviltech567}/count.svg" /></p>
