@@ -7,7 +7,7 @@
 [![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAPP%20CHANNEL-FF00F8?style=big-square&logo=whatsapp)](https://whatsapp.com/channel/0029Vb5TKuPLCoX8sjZo7t41)
 </div>
 
- <p align="center"><img src="https://profile-counter.glitch.me/{DEVIL-TECH-MD}/count.svg" alt="deviltech567 :: Visitor's Count" old_src="https://profile-counter.glitch.me/{deviltech567}/count.svg" /></p>
+ <p align="center"><img src="https://profile-counter.glitch.me/{NEXUS-MD-BOT}/count.svg" alt="DUMIYH-OFC-KOD :: Visitor's Count" old_src="https://profile-counter.glitch.me/{DUMIYH-OFC-KOD}/count.svg" /></p>
 
 
 <p align="center">
