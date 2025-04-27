@@ -40,25 +40,27 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 ***
-</p>
+---
 
 
 
 ### 1. FORK THIS REPOSITORY 
 
 `FORK 🍴 AND STAR ⭐ IF YOU LIKE THIS BOT`
-</p>
+---
 
-  <a href="https://github.com/deviltech567/DEVIL-TECH-MD/fork"><img title="DEVIL-TECH-MD" src="https://img.shields.io/badge/FORK-DEVIL%20TECH%20MD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
-  
-### 2. 𐃁GET SESSION ID𐃁 
+  <a href="https://github.com/DUMIYH-OFC-KOD/NEXUS-MD-BOT/fork"><img title="DEVIL-TECH-MD" src="https://img.shields.io/badge/FORK-NEXUS%20TECH%20MD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
+
+---
+
+### 2. GET SESSION ID 
 
 `IF YOU DON'T HAVE YOUR SESSION_ID SO U CAN GET IT CLICK ON SESSION_ID BUTTON AND PASTE YOUR NUMBER With COUNTRY CODE EXAMPLE:9476009xxxx THEN YOU CAN GET YOUR SESSION_ID ✠`
 
 
 > **1. PAIR CODE SESSION ID**
 
-<a href='https://ali-md-web-qr-pair-z8r2.onrender.com' target="_blank">
+<a href='https://dark-dumiyh-xmd-pair-web.onrender.com/pair' target="_blank">
   <img alt='Pairing Code' src='https://img.shields.io/badge/Get%20Pairing%20Code-orange?style=for-the-badge&logo=opencv&logoColor=black'/>
 </a>
 <br> 
@@ -69,7 +71,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
   <img alt='Pairing Code' src='https://img.shields.io/badge/Get%20Pairing%20Code-darkpink?style=for-the-badge&logo=opencv&logoColor=black'/>
 </a>
 <br> 
-
+---
 
 
 ---
@@ -141,7 +143,7 @@ JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER 
 <br>
 
 ```
-THANK YOU TDD AND CYBER THEHAN YOU SUPPORTERS
+THANK YOU TDD AND CYBER HIRUSHAM YOU SUPPORTERS
 ```
 -----
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
