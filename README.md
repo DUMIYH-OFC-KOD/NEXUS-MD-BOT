@@ -40,13 +40,14 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 ***
+</p>
 
 
 
-
-### 1. 𐃁FORK THIS REPOSITORY𐃁
+### 1. FORK THIS REPOSITORY 
 
 `FORK 🍴 AND STAR ⭐ IF YOU LIKE THIS BOT`
+</p>
 
   <a href="https://github.com/deviltech567/DEVIL-TECH-MD/fork"><img title="DEVIL-TECH-MD" src="https://img.shields.io/badge/FORK-DEVIL%20TECH%20MD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
   
