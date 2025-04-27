@@ -57,6 +57,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
 
 `IF YOU DON'T HAVE YOUR SESSION_ID SO U CAN GET IT CLICK ON SESSION_ID BUTTON AND PASTE YOUR NUMBER With COUNTRY CODE EXAMPLE:9476009xxxx THEN YOU CAN GET YOUR SESSION_ID ✠`
 
+---
 
 > **1. PAIR CODE SESSION ID**
 
@@ -65,6 +66,8 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
 </a>
 <br> 
 
+---
+---
 > **2. PAIR CODE SESSION ID**
 
 <a href='https://ali-md-pair-69ad509c920e.herokuapp.com/' target="_blank">
@@ -76,7 +79,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
 
 ---
 
-### <h2 align="">𐃁DEVIL-TECH-MD DEPLOYMENT OPTIONS𐃁</h2>
+### <h2 align="">NEXUS-TECH-MD DEPLOYMENT OPTIONS</h2>
 
 ---
 
@@ -94,40 +97,37 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO 😇
  
 
 ## 👑 PROJECT OWNER 
-HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME CYBER LOKU ASHUU OFC࿐➺
+HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME CYBER DUMIYH OFC
 
 <p align="">
-<a href='https://wa.me/+94760091093?text=*ʜɪɪ+ᴄʏʙᴇʀ+ʟᴏᴋᴜ+ᴀꜱʜᴜᴜ+ᴏꜰᴄ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+ᴅᴇᴠɪʟ-ᴛᴇᴄʜ-ᴍᴅ+ʀᴇᴘᴏ!!*' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
+<a href='https://wa.me/+94769490765?text=*NEXUS-MD-DEVELOPER-DUMIYH-OFC-📃💐*' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
+---
 
 ## 🪀 WHATSAPP CHANNEL 
 STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
 
-[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029Vb9u0GQ8qIzmoGPEtq0s)
-
-## 🪀 WHATSAPP GROUP
-JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
-
-[![WhatsApp Group](https://img.shields.io/badge/JOIN-WHATSAAP%20GROUP-25D366?style=for-the-badge&logo=whatsapp)](https://chat.whatsapp.com/Lx7sDv7jSy0CCTm5AliPdq)
-
+[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029Vb5TKuPLCoX8sjZo7t41)
  
-
+---
 
 ***
-
+---
 ## <h2 align="left">⚠️ REMINDER </h2>
 <p style="text-align: center; font-size: 1.2em;">
 
 - **DISCLAIMER:** THIS BOT IS NOT AFFILIATED WITH `WhatsApp Inc.`. USE IT AT YOUR OWN RISK.
+  
 - MISUSING THE BOT MAY RESULT IN YOUR `WhatsApp` ACCOUNT BEING BANNED. NOTE THAT YOU CAN ONLY UNBAN YOUR ACCOUNT ONCE.
+  
 - I AM NOT RESPONSIBLE FOR ANY BANS OR MISUSE OF THE BOT. PLEASE KEEP THIS WARNING IN MIND BEFORE PROCEEDING.
 
 ---
 
 <h2 align="left">ℹ️ NOTICE</h2>
 <p style="text-align: center; font-size: 1.2em;">
-  NOT FOR SALE - IF ANY PLUGIN'S CODE IS OBFUSCATED, YOU DO NOT HAVE PERMISSION TO EDIT IT IN ANY FORM. PLEASE REMEMBER TO GIVE CREDIT IF YOU ARE USING OR RE-UPLOADING MY PLUGINS/FILES. WISHING YOU A WONDERFUL DAY AHEAD!</p>
+  NOT FOR SALE - IF ANY PLUGIN'S CODE IS OBFUSCATED, YOU DO NOT HAVE PERMISSION TO EDIT IT IN ANY FORM. PLEASE REMEMBER TO GIVE CREDIT IF YOU ARE USING OR RE-UPLOADING MY PLUGINS/FILES. WISHING YOU A WONDERFUL DAY AHEAD !</p>
   
 ---
 
